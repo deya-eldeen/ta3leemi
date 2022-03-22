@@ -1,8 +1,7 @@
 ## Ta3leemi.org
 
-Domain for Sale 
+![image info](./ta3leemi.jpeg)
 
-00962797228550 (whatsapp)
 
 deyaeldeenk@gmail.com
  
